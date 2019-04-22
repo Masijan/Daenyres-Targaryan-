@@ -1,2 +1,2 @@
 # Daenyres-Targaryan-
-blah blah blah
+The Mother of Dragons, the breaker of the chains and Khaleasi of Dothraki and Emal's crush
